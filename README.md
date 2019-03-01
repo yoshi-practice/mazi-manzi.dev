@@ -1,0 +1,1 @@
+# mazi-manzi.dev
