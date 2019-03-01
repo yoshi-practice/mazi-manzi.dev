@@ -1,1 +1,1 @@
-# mazi-manzi.dev
+# [mazi-manzi.dev](https://マジ卍.dev)
